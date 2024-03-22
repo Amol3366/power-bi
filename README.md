@@ -40,7 +40,7 @@ Your feedback is valuable! If you have any questions, comments, or suggestions r
 
 ## Contact
 
-For any inquiries or assistance, feel free to contact me via [LinkedIn](https://www.linkedin.com/in/yourprofile/) or [email](mailto:youremail@example.com).
+For any inquiries or assistance, feel free to contact me via [LinkedIn](www.linkedin.com/in/amol-bhasre) or [email](amolkbhasre3366@gmail.com).
 
 ---
 
